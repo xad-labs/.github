@@ -27,4 +27,4 @@ Our team's composition includes members with deep domain experience in proprieta
 
 For more details, please contact:
 `spcmer@gmail.com` or
-`jat.pankaj.m@gmail.com`
+`kaz@xadlabs.org`
